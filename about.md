@@ -9,7 +9,8 @@ along with two other cats and my service humans.
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+At night, I patrol Quadrant C, covering between five and ten kilometres each night. Less when it's snowing (brrr, my paws!) and more in summer
+when the mice are running. Yum, yum.
 
 ### Contact me
 
